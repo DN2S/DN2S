@@ -1,3 +1,2 @@
-lol,
-lmao even,
-kek if you will.
+lol, lmao even
+
